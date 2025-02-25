@@ -1,9 +1,9 @@
-![image](https://github.com/user-attachments/assets/5e439875-9f19-4bc8-848c-0963ac756bf5) ![image](https://github.com/user-attachments/assets/1a4de45f-9b91-43c7-b736-b9205e1712f5)
+![image](https://github.com/user-attachments/assets/5e439875-9f19-4bc8-848c-0963ac756bf5)
 
                                               
                                            
-                               ⋆˚꩜｡.𖥔 ݁ ˖── .✦~(𐂯) 
-                                        𓌉◯𓇋
+                            ⋆˚꩜｡.𖥔 ݁ ˖── .✦~(𐂯) 
+                                    𓌉◯𓇋
 
                                         
 ⤿
