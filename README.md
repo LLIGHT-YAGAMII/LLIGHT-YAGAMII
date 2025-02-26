@@ -5,9 +5,9 @@
                                 𖤐ᝰ.ᐟ𖦹₊⊹
 
 
-![image](https://github.com/user-attachments/assets/d62d986d-fcb1-4f94-883d-2c6376e2bae4)
+₊˚⊹♡ ![image](https://github.com/user-attachments/assets/d62d986d-fcb1-4f94-883d-2c6376e2bae4)
 ![image](https://github.com/user-attachments/assets/5d0eac66-6616-4f55-9c3c-98c8a09ea6f9) 
-![image](https://github.com/user-attachments/assets/f127bb9b-8fc2-4ab1-9b8e-f09bf834e1e1)
+
 
 
 
